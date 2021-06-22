@@ -1,0 +1,1 @@
+all-purpose flour, white sugar, chocolate chips, unsweetened cocoa powder, baking soda, egg, plain yogurt, milk, vanilla extract. vegtable oil, chocolate chips

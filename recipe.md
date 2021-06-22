@@ -1,0 +1,3 @@
+Step 1: preheat oven to 400 degrees F. Greese 12 muffin cups or line with paper muffin liners
+Step 2: Conbine flour, sugar, 3/4 cups chocolate chips, cocoa powder, and baking soda in a large bowl. Whisk egg, yogurt, milk, vanilla, and vetagble oil in another bowl until smooth; pour into chocolate mixture and stir until batter is just blended. Fill preparped muffin cups 3/4 full and sprinkle with remaining 1/4 cup chocolate chips
+Step 3: Bake in preheated oven until a toothpick inserted into the center comes out clean, about 20 minutes. Cool in the pans for 10 minutes before removing to cool completly on a wire rack.
